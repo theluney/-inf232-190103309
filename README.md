@@ -5,3 +5,4 @@ I was born in Shymkent.
 I like dancing and singing.
 Sometimes I like riding a horse.
 I visited only Uzbekistan.
+I hate watching American films.
